@@ -2,7 +2,7 @@
 
 Project Demonstration:
 <br>
-https://docs.google.com/document/d/1lIXP-IAa0oHq9VPkKmmHyaaa6A5Pp509/edit
+https://docs.google.com/document/d/1pKc57-02CNA0Beo_44OOyvQnFzwhoMdq/view
 
 Video Link :- https://drive.google.com/file/d/15FN5x6chlmyOReSoWjsp5gPg-g3-QV8b/view?usp=drive_link
 <br>
